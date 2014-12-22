@@ -35,24 +35,26 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A briefe discours of certain bathes or medicinall waters in the Countie of Warwicke neere vnto a vil
+THE benefits no doubt are great and manifold which almightie God of his large bountie & exceeding go
 #####Body#####
 
-1. The Minerals from which the waters of theſe wels are ſuppoſed to draw their vertues.
+1. ¶A briefe diſcourſe of certaine Bathes or Medicinall waters, in the Countie of Warwicke, neer vnto a village called Newnam Regis.
 
-1. The generall qualities and temperament of the water of theſe wels.
+    _ The Minerals from which the waters of theſe wels are ſuppoſed to draw their vertues.
 
-1. Particular diſeaſes which may be cured by the vſe of theſe waters.
+    _ The generall qualities and temperament of the water of theſe wels.
 
-1. The vſe of theſe Wels.
+    _ Particular diſeaſes which may be cured by the vſe of theſe waters.
 
-1. Certaine things to be obſerued before the drinking of the water of theſe welles.
+    _ The vſe of theſe Wels.
 
-1. Of the maner of drinking medicinall waters, and what things are to be obſerued whiles they are dronken.
+    _ Certaine things to be obſerued before the drinking of the water of theſe welles.
 
-1. The quantitie of water which is to be dronken, and how in diuers caſes it is diuerſly to be vſed.
+    _ Of the maner of drinking medicinall waters, and what things are to be obſerued whiles they are dronken.
 
-1. Things to be obſerued after that the drinking of theſe medicinall waters is fully past.
+    _ The quantitie of water which is to be dronken, and how in diuers caſes it is diuerſly to be vſed.
+
+    _ Things to be obſerued after that the drinking of theſe medicinall waters is fully past.
 
 **Types of content**
 
